@@ -3,3 +3,6 @@
 
 <p align="center"> $${\color{#6e518c}
   VIVY  ☆     11/06 }$$
+
+<p align="center"> $${\color{#6e518c}
+  SHE  ☆     HE }$$
