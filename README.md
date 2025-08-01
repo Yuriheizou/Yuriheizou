@@ -5,7 +5,7 @@
   **“ It's filthy, disgusting, so ugly, I'm sure. ”**
 
  
-  <img src="https://cdn.discordapp.com/attachments/1268327200571265137/1400719066896924764/chance_and_itrapped_forsaken_.jpg?ex=688da8c9&is=688c5749&hm=463ffde10285cc3ff7f378840b8b2f2d4ede6c52d0217ae634f640c8897cbc31">
+  <img src="Untitled196_20250801172526.png">
 
 · · ─ ·✶· ─ · ·· · ─ ·✶· ─ · ·· · ─ ·✶· ─ · ·
   <div align='left'>
