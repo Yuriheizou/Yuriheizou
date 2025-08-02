@@ -5,7 +5,7 @@
   **“ It's filthy, disgusting, so ugly, I'm sure. ”**
 
  
-  <img src="htps://github/Untitled196_20250801172526.png">
+  <img src="https://cdn.discordapp.com/attachments/1268327200571265137/1401038393445453915/Untitled196_20250801172526.png?ex=688ed22f&is=688d80af&hm=8bc985347aa33162f99e27ab405e6ee5ff98a4156f86aac6a4f043693652aa78&">
 
 · · ─ ·✶· ─ · ·· · ─ ·✶· ─ · ·· · ─ ·✶· ─ · ·
   <div align='left'>
