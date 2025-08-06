@@ -5,7 +5,7 @@
   **“ It's filthy, disgusting, so ugly, I'm sure. ”**
 
  
-  <img src="https://cdn.discordapp.com/attachments/1268327200571265137/1401038393445453915/Untitled196_20250801172526.png?ex=688ed22f&is=688d80af&hm=8bc985347aa33162f99e27ab405e6ee5ff98a4156f86aac6a4f043693652aa78&">
+  <img src="https://cdn.discordapp.com/attachments/1268327200571265137/1402473547170975825/Untitled196_20250801172526.png?ex=68940ac6&is=6892b946&hm=e2d448b0fa9651cf1653585e53400d69edb41d1adeb002b263ed91ec13575e4d&">
 
 · · ─ ·✶· ─ · ·· · ─ ·✶· ─ · ·· · ─ ·✶· ─ · ·
   <div align='left'>
