@@ -5,7 +5,7 @@
   **“ It's filthy, disgusting, so ugly, I'm sure. ”**
 
  
-  <img src="https://cdn.discordapp.com/attachments/1268327200571265137/1402473547170975825/Untitled196_20250801172526.png?ex=68940ac6&is=6892b946&hm=e2d448b0fa9651cf1653585e53400d69edb41d1adeb002b263ed91ec13575e4d&">
+  <img src="https://cdn.discordapp.com/attachments/1268327200571265137/1404283092486852679/tumblr_524d1b96add71d3d1543c24d01bd545c_cdb3a31d_2048.png?ex=689aa00b&is=68994e8b&hm=71e53673ddadc13bb2d0908fd620f5329bdf2103fada4a715900903163ca6f91&">
 
 · · ─ ·✶· ─ · ·· · ─ ·✶· ─ · ·· · ─ ·✶· ─ · ·
   <div align='left'>
@@ -24,7 +24,7 @@
   
 # Other info !!
 
-  <img src="https://cdn.discordapp.com/attachments/1268327200571265137/1400721292402888818/c6fe779a9285f173.jpg?ex=688daadc&is=688c595c&hm=3221ed88c296956edd178ae049890a24a02e9809228260488ba9643d656899fd&">
+  <img src="https://cdn.discordapp.com/attachments/1268327200571265137/1404283164364509215/tumblr_16addfa05d4eb55bc220480c49018d9b_710b670f_2048.png?ex=689aa01c&is=68994e9c&hm=ba0f63318021aa7d4c352176fb1ed53ed0dc152904f8c6b9dc5621c67f77cee0&">
 
   ╭──────────.❄︎..─╮
   
