@@ -42,8 +42,7 @@
 
   <div align='left'>
 
-> Github may still be a wip, as well as strawpage, if you see, don't be afraid to ask if you want to know more!
-> I def need to fix the images..!
+> Github may still be a wip, as well as strawpage, if you see me, don't be afraid to ask if you want to know more!
 
 <div align='center'>
   
