@@ -5,7 +5,7 @@
   **“ It's filthy, disgusting, so ugly, I'm sure. ”**
 
  
-  <img src="https://cdn.discordapp.com/attachments/1268327200571265137/1404283092486852679/tumblr_524d1b96add71d3d1543c24d01bd545c_cdb3a31d_2048.png?ex=689aa00b&is=68994e8b&hm=71e53673ddadc13bb2d0908fd620f5329bdf2103fada4a715900903163ca6f91&">
+  <img src="https://64.media.tumblr.com/5d32560113f26940d7261f6993b007d0/b2b2e140ec8eafd1-e0/s1280x1920/347ef70b17d9f45fccc63173e8451f4e28b5e510.pnj">
 
 · · ─ ·✶· ─ · ·· · ─ ·✶· ─ · ·· · ─ ·✶· ─ · ·
   <div align='left'>
@@ -18,17 +18,17 @@
 >
 > If you see me anywhere, say hi!! Don't be shy!! I don't bite, trust!!
 
-> ![](https://komarev.com/ghpvc/?username=yuriheizou&style=flat-square&label=Starlings&base=0&color=8399ca&abbreviated=true)
+> ![](https://komarev.com/ghpvc/?username=yuriheizou&style=flat-square&label=GAMBLERS&base=0&color=8399ca&abbreviated=true)
 
 <div align='center'>
   
 # Other info !!
 
-  <img src="https://cdn.discordapp.com/attachments/1268327200571265137/1404283164364509215/tumblr_16addfa05d4eb55bc220480c49018d9b_710b670f_2048.png?ex=689aa01c&is=68994e9c&hm=ba0f63318021aa7d4c352176fb1ed53ed0dc152904f8c6b9dc5621c67f77cee0&">
+  <img src="https://64.media.tumblr.com/9946e294509ca1a60905be871cb20d85/b2b2e140ec8eafd1-6d/s1280x1920/43bae76c4202df0ebab5965ed0a311ca6247db8b.pnj">
 
-  ╭──────────.❄︎..─╮
+  ╭──────────.❄🎲..─╮
   
-  ╰─..❄︎.──────────╯
+  ╰─..🎲.──────────╯
 
   <div align='left'>
     
@@ -48,6 +48,6 @@
   
 -------------
 
-**[🌙]**
+**[🎲]**
 
 ------
