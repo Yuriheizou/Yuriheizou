@@ -5,7 +5,7 @@
   **“ It's filthy, disgusting, so ugly, I'm sure. ”**
 
  
-  <img src="https://64.media.tumblr.com/5d32560113f26940d7261f6993b007d0/b2b2e140ec8eafd1-e0/s1280x1920/347ef70b17d9f45fccc63173e8451f4e28b5e510.pnj">
+  <img src="https://64.media.tumblr.com/18942991d3f80a07faf32f3ce4642920/d9a67a81a7b9ab87-63/s2048x3072/ff7403c9368dee02f5edebf7eea73eec81e2bb77.pnj">
 
 · · ─ ·✶· ─ · ·· · ─ ·✶· ─ · ·· · ─ ·✶· ─ · ·
   <div align='left'>
@@ -14,23 +14,23 @@
 
 > Feel free to int! Though I might be a bit dry or respond late when you first meet me..! If I don't know you fully, please whisper, that way it's easier for me to read back into our chat!
 >
-> Please don't flirt with me if I do not know you! Jokes are fine, but don't go overboard, I will block/hide you if you make me heavy uncomfortable.
+> Please don't flirt with me if I do not know you! Jokes are fine, but don't go overboard, I will block/hide you if you make me heavily uncomfortable.
 >
 > If you see me anywhere, say hi!! Don't be shy!! I don't bite, trust!!
 
-> ![](https://komarev.com/ghpvc/?username=yuriheizou&style=flat-square&label=GAMBLERS&base=0&color=842a2a&abbreviated=true)
+> ![](https://komarev.com/ghpvc/?username=yuriheizou&style=flat-square&label=VOIDLINGS&base=0&color=54427c&abbreviated=true)
 
 <div align='center'>
   
 # Other info !!
 
-  <img src="https://64.media.tumblr.com/9946e294509ca1a60905be871cb20d85/b2b2e140ec8eafd1-6d/s1280x1920/43bae76c4202df0ebab5965ed0a311ca6247db8b.pnj">
+  <img src="https://64.media.tumblr.com/db5b0ce0dce0a08070de3f6332558e72/d9a67a81a7b9ab87-90/s2048x3072/84eac7b2f530484a0e51c999f0b5f902f26eb1c0.pnj">
 
-  ╭──────────.🎲..─╮
+  ╭──────────.⭐..─╮
 
-<img src="https://64.media.tumblr.com/32b11776e717dcb02e2e984805931777/2a0ff85a122af2f8-29/s250x400/0c4c4b1b47f1c440df19149766d4eec75c7a1aae.pnj">
+<img src="https://64.media.tumblr.com/7ec0da380de551f4f34ce2062daff415/9ca453961af5efac-d3/s250x400/cc57ef7c87cbc7b05bcf4b2b6ff2446e9859bce2.pnj">
   
-  ╰─..🎲.──────────╯
+  ╰─..⭐.──────────╯
 
   <div align='left'>
     
@@ -50,6 +50,6 @@
   
 -------------
 
-**[🎲]**
+**[⭐]**
 
 ------
