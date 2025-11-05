@@ -28,7 +28,7 @@
 
   ╭──────────.⭐..─╮
 
-<img src="https://64.media.tumblr.com/7ec0da380de551f4f34ce2062daff415/9ca453961af5efac-d3/s250x400/cc57ef7c87cbc7b05bcf4b2b6ff2446e9859bce2.pnj">
+<img src="https://64.media.tumblr.com/b04f641bd3fcc1f7f4dbdee8cbb2df35/209b6c4fd8072f2e-e9/s2048x3072/ff6ba96a94b257d7ba56889fc985c24a644e9d4f.pnj">
   
   ╰─..⭐.──────────╯
 
