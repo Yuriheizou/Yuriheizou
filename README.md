@@ -18,7 +18,7 @@
 >
 > If you see me anywhere, say hi!! Don't be shy!! I don't bite, trust!!
 
-> ![](https://komarev.com/ghpvc/?username=yuriheizou&style=flat-square&label=VOIDLINGS&base=0&color=54427c&abbreviated=true)
+> ![](https://komarev.com/ghpvc/?username=yuriheizou&style=flat-square&label=Tumors&base=0&color=000000&abbreviated=true)
 
 <div align='center'>
   
