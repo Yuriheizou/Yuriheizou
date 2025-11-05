@@ -5,7 +5,7 @@
   **“ It's filthy, disgusting, so ugly, I'm sure. ”**
 
  
-  <img src="https://64.media.tumblr.com/18942991d3f80a07faf32f3ce4642920/d9a67a81a7b9ab87-63/s2048x3072/ff7403c9368dee02f5edebf7eea73eec81e2bb77.pnj">
+  <img src="https://64.media.tumblr.com/b081bc69446f828502001c5562c79ce8/bad82f39dd94aba3-5f/s2048x3072/3eee675917b2cba7e00c19cf604348373318dbe1.pnj">
 
 · · ─ ·✶· ─ · ·· · ─ ·✶· ─ · ·· · ─ ·✶· ─ · ·
   <div align='left'>
@@ -23,8 +23,6 @@
 <div align='center'>
   
 # Other info !!
-
-  <img src="https://64.media.tumblr.com/db5b0ce0dce0a08070de3f6332558e72/d9a67a81a7b9ab87-90/s2048x3072/84eac7b2f530484a0e51c999f0b5f902f26eb1c0.pnj">
 
   ╭──────────.⭐..─╮
 
