@@ -4,7 +4,7 @@
 </p>
 
 <p align="center">
-  ${\color{#9b7bc5}There's \space no \space limit \space to \space the⠀}$ ${\color{#532b87}dream}$   ${\color{#9b7bc5} I \space can \space see. \space ⠀"}$
+  ${\color{#9b7bc5}There's \space no \space limit \space to \space the⠀}$ ${\color{#532b87}dream}$   ${\color{#9b7bc5} I \space can \space see. \space <3 \space⠀"}$
 </p>
 
 <div align="center">   
