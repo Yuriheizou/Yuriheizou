@@ -24,8 +24,8 @@ _ _
   ${\color{#9b7bc5}I \space often \space don't \space int \space first \space so \space whisp \space me \space if \space you \space would \space like \space to \space int!}$
 </p>
 <p align="center">
-  ${\color{#9b7bc5}Dni \space if \space you're: in \space the \space basic \space dni \space list. \space prop*ara, \space defending \space problematic \space behavior, \space believe \space ragebaiting \space mean \space disturbing \space / \space harmful \space topics \space and \space }$
-  ${\color{#9b7bc5}not \space stoping \space after \space someone \space said \space stop \space multiple \space time. \space incest \space games \space and \space lolicon/shotacon \space games.⠀}$
+  ${\color{#9b7bc5}Dni \space if \space you're: in \space the \space basic \space dni \space list. \space prop*ara, \space defending \space problematic \space behavior, \space believe \space ragebaiting \space mean \space disturbing \space / \space harmful \space topics \space }$
+  ${\color{#9b7bc5}and \space not \space stoping \space after \space someone \space said \space stop \space multiple \space time. \space incest \space games \space and \space lolicon/shotacon \space games.⠀}$
 </p>
 <p align="center">
   ${\color{#9b7bc5}dniuf \space / \space iwec \space if \space you \space ship \space these: \space moonflower, \space moonberry, \space fossilberry, \space reflectivedetective, \space berryvision, \space flowervision⠀}$
