@@ -1,6 +1,6 @@
 
 <p align="center">
-  ${\color{#354094}"⠀ Your ticket doesn't allow entry into this area." }$
+  ${\color{#354094}"⠀ Your \space ticket \space doesn't \space allow \space entry \space into \space this \space area." }$
 </p>
 
 <div align="center">   
