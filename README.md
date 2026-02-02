@@ -30,5 +30,5 @@ _ _
   ${\color{#354094}I \space hide \space / \space block \space freely. \space mostly \space for \space my \space safety.⠀}$
 </p>
 <div align="center">    
-  <img src="https://komarev.com/ghpvc/?username=Yuriheizou&label=　viewers　&color=62408e&style=plastic" alt="Profile views"/>
+  <img src="https://komarev.com/ghpvc/?username=Yuriheizou&label=　guests　&color=354094&style=plastic" alt="Profile views"/>
 </div>
