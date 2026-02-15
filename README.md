@@ -24,7 +24,7 @@ _ _
   ${\color{#354094}and \space not \space stoping \space after \space someone \space said \space stop \space multiple \space time. \space incest \space games \space and \space lolicon/shotacon \space games.⠀}$
 </p>
 <p align="center">
-  ${\color{#354094}dniuf \space / \space iwec \space if \space you \space ship \space these: \space moonflower, \space moonberry, \space fossilberry, \space reflectivedetective, \space berryvision, \space flowervision⠀}$
+  ${\color{#354094}dniuf \space / \space iwec \space if \space you \space ship \space these: \space moonflower, \space moonberry, \space reflectivedetective, \space flowervision⠀}$
 </p>
 <p align="center">
   ${\color{#354094}I \space hide \space / \space block \space freely. \space mostly \space for \space my \space safety.⠀}$
