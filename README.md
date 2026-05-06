@@ -1,6 +1,6 @@
 <div align="center">
   
-![Typing SVG](https://readme-typing-svg.demolab.com?font=Qilka&size=20&duration=4000&pause=22&color=7844b5&center=true&vCenter=true&width=435&lines=%E2%9D%9D+I+don't+care+much+about+you+-;but+but+I+wouldn't+mind+if+you+liked+me+too+.+%E2%9D%9E)
+![Typing SVG](https://readme-typing-svg.demolab.com?font=times+new+roman&size=20&duration=4000&pause=25&color=7844b5&center=true&vCenter=true&width=435&lines=%E2%9D%9D+I+don't+care+much+about+you+-;but+I+wouldn't+mind+if+you+liked+me+too+.+%E2%9D%9E)
   
 </div>
 
